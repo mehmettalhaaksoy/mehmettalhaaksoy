@@ -72,4 +72,4 @@ BilgeAdam Boost · 2023–2024
 
 ## Links
 
-* [LinkedIn]((https://www.linkedin.com/in/mehmet-talha-aksoy-23000521b/))
+* [LinkedIn](https://www.linkedin.com/in/mehmet-talha-aksoy-23000521b/)
